@@ -1,16 +1,13 @@
 <div align="center">
 
-
-  ![](https://komarev.com/ghpvc/?username=papas-pancakeria&label=ejections&base=1229&style=round-square&color=FFAC1C)
-
-<img width="680" height="680" alt="RODAMRIX_ CÓMICS" src="https://github.com/user-attachments/assets/4f8a5026-f88e-4e8d-b8b3-f2bed6c1b3ee" />
+<img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
 
 
-<div align="center">
-  
+  ![](https://komarev.com/ghpvc/?username=parasolparadox&label=flies&base=1229&style=round-square&color=3AB2E5)
 
-usually at flower shop or at docks with friends (love yall btw)
+<img width="796" height="772" alt="IMG_5304" src="https://github.com/user-attachments/assets/9d5809f3-362d-49d5-9551-1deda2251797" />
 
-<div align="center">
 
-iwc and c+h freely
+
+
+
