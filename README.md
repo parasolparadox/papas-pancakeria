@@ -14,6 +14,7 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 
 [strawpage](https://athite.straw.page) 
 <img width="20" height="20" alt="IMG_5315" src="https://github.com/user-attachments/assets/4762d641-9bf2-4ee2-867b-44873c0ab2a7" />
+
 [pronouns](https://prns.cc/nmgso) 
 
 
