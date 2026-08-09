@@ -10,7 +10,4 @@ $\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#
 
 <img width="796" height="772" alt="IMG_5304" src="https://github.com/user-attachments/assets/9d5809f3-362d-49d5-9551-1deda2251797" />
 
-
-
-
-
+[Sign my strawpage!](https://athite.straw.page).
