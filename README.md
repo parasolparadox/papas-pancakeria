@@ -2,26 +2,22 @@
 
 <img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
 
-
-  ![](https://komarev.com/ghpvc/?username=parasolparadox&label=flies&base=1229&style=round-square&color=3AB2E5)
-
+ ![](https://komarev.com/ghpvc/?username=parasolparadox&label=flies&base=1229&style=round-square&color=3AB2E5)
   
-$\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#6FC541}w2i}$ $\texttt{\color{#87bbfd}iwc}$ ⋆✿
-<br>
-<img width="796" height="772" alt="IMG_5304" src="https://github.com/user-attachments/assets/9d5809f3-362d-49d5-9551-1deda2251797" />
-<img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
-<br/>
+$\texttt{\color{#fab7d6}c+h}$ $\texttt{\color{#fef07d}freely}$ $\texttt{\color{#6FC541}w2i}$ $\texttt{\color{#87bbfd}iwcuf}$ ⋆✿
 
+<img width="796" height="772" alt="IMG_5304" src="https://github.com/user-attachments/assets/9d5809f3-362d-49d5-9551-1deda2251797" />
+
+<img width="796" height="70" alt="IMG_5303" src="https://github.com/user-attachments/assets/feb20bc9-efe6-4153-b9a8-a30e4804b8e8" />
+<br>
+<div align="center">
+  
 [strawpage](https://athite.straw.page) 
 <img width="20" height="20" alt="IMG_5315" src="https://github.com/user-attachments/assets/4762d641-9bf2-4ee2-867b-44873c0ab2a7" />
 
-[pronouns](https://prns.cc/nmgso) 
+[pronouns](https://prns.cc/nmgso) <img width="20" height="20" alt="IMG_5316" src="https://github.com/user-attachments/assets/eb4f9c37-1b69-47a0-a396-5d6e010ba793" />
 
-
-
-<br>
-
-
+<div align="center">
 <details>
   <summary>stamps</summary>
   
